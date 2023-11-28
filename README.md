@@ -1,1 +1,1 @@
-# Sejong_SW_academic_festical
+# Sejong_SW_academic_festival
